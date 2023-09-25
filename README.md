@@ -1,1 +1,22 @@
-# BusinessFacts
+# Business
+
+- [The number one reason why businesses fail is there’s no market need.](https://thefactbase.com/the-number-one-reason-why-businesses-fail-is-there-s-no-market-need)
+- [Almost 9 in 10 small businesses offer a medical plan to their employees. More than 50% of small businesses aim to offer a better benefits package than their competitors.](https://thefactbase.com/almost-9-in-10-small-businesses-offer-a-medical-plan-to-their-employees-more-than-50-of-small-businesses-aim-to-offer-a-better-benefits-package-than-their-competitors)
+- [Studies show middle-aged men start the most successful businesses.](https://thefactbase.com/studies-show-middle-aged-men-start-the-most-successful-businesses)
+- [Spain leads the world in cork production.](https://thefactbase.com/spain-leads-the-world-in-cork-production)
+- [In 2015, there were about 414,000 startups firms that were less than 1-year-old and 396,000 business closures.](https://thefactbase.com/in-2015-there-were-about-414-000-startups-firms-that-were-less-than-1-year-old-and-396-000-business-closures)
+- [Adidas will cancel any sponsorship deal they have with a player if it turns out he has anything to do with Scientology.](https://thefactbase.com/adidas-will-cancel-any-sponsorship-deal-they-have-with-a-player-if-it-turns-out-he-has-anything-to-do-with-scientology)
+- [12.5 percent of small businesses are made up of immigrants from other countries. Diversity is essential for innovation in the workplace.](https://thefactbase.com/12-5-percent-of-small-businesses-are-made-up-of-immigrants-from-other-countries-diversity-is-essential-for-innovation-in-the-workplace)
+- [Wal-Mart averages a profit of $1.8 million every hour.](https://thefactbase.com/wal-mart-averages-a-profit-of-1-8-million-every-hour)
+- [In Iceland, a Big Mac costs $5.50.](https://thefactbase.com/in-iceland-a-big-mac-costs-5-50)
+- [Sweden has more McDonald's per capita than any other country in Europe.](https://thefactbase.com/sweden-has-more-mcdonald-s-per-capita-than-any-other-country-in-europe)
+- [A majority of small-business owners in the United States don’t have a college degree.](https://thefactbase.com/a-majority-of-small-business-owners-in-the-united-states-don-t-have-a-college-degree)
+- [Bird droppings are the chief export of Nauru, an island nation in the Western Pacific.](https://thefactbase.com/bird-droppings-are-the-chief-export-of-nauru-an-island-nation-in-the-western-pacific)
+- [There are 1,008 McDonald's franchises in France.](https://thefactbase.com/there-are-1-008-mcdonald-s-franchises-in-france)
+- [Take a picture of business cards people hand you, just in case you lose it.](https://thefactbase.com/take-a-picture-of-business-cards-people-hand-you-just-in-case-you-lose-it)
+- [The largest taxi fleet in the world is found in Mexico City. The city boasts a fleet of over 140,000 taxis.](https://thefactbase.com/the-largest-taxi-fleet-in-the-world-is-found-in-mexico-city-the-city-boasts-a-fleet-of-over-140-000-taxis)
+- [Woman-owned businesses generate $1.8 trillion in revenue. This is just 4.3% of the total private sector revenue.](https://thefactbase.com/woman-owned-businesses-generate-1-8-trillion-in-revenue-this-is-just-4-3-of-the-total-private-sector-revenue)
+- [China is the world's largest market for BMW's top-of-the-line 760Li. This car sells for $200,000 in China-more than almost all people in China make in a lifetime.](https://thefactbase.com/china-is-the-world-s-largest-market-for-bmw-s-top-of-the-line-760li-this-car-sells-for-200-000-in-china-more-than-almost-all-people-in-china-make-in-a-lifetime)
+- [Warner settled 'Happy Birthday' copyright suit for $14 million](https://thefactbase.com/warner-settled-happy-birthday-copyright-suit-for-14-million)
+- [There are an estimated 582 million people globally, who are in the process of starting or running their own business.](https://thefactbase.com/there-are-an-estimated-582-million-people-globally-who-are-in-the-process-of-starting-or-running-their-own-business)
+- [20% of small businesses fail in their first year, 30% of small business fail in their second year, and 50% of small businesses fail after five years in business. Finally, 70% of small business owners fail in their 10th year in business.](https://thefactbase.com/20-of-small-businesses-fail-in-their-first-year-30-of-small-business-fail-in-their-second-year-and-50-of-small-businesses-fail-after-five-years-in-business-finally-70-of-small-business-owners-fail-in-their-10th-year-in-business)
